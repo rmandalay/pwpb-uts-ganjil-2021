@@ -1,1 +1,0 @@
-// Jawaban Soal 1 ada di bawah ini
